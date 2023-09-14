@@ -2,7 +2,7 @@
 
 Used as my personal wallpaper. Project can be found here: https://steamcommunity.com/sharedfiles/filedetails/?id=3035020911
 
-# Original Readme:
+# Original Readme
 
 Error 404: Page not found – 80s hacker theme
 
